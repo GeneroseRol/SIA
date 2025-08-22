@@ -2,4 +2,4 @@ As a student whose taking Bachelor of Science in information technology Major in
 
 I also believe this course will provide me with an opportunity to learn from practical examples that will help me to improve more and build more skills. I also expect to going through activities and  lessons that will make me/us gain a lot of knowledge. I hope to learn simple techniques and tools that can be applied in real-life projects. So that this can help me build confidence in solving technical challenges.
 
-All in all, I expect this subject to help me grow and improve my skills in problem-solving and critical thinking. Also, I hope to be more confident in analyzing, designing, and understanding systems. I’m looking forward how this course will help me as i continue my IT journey.
+All in all, I expect this course to help me grow and improve my skills in problem-solving and critical thinking. Also, I hope to be more confident in analyzing, designing, and understanding systems. I’m looking forward how this course will benefit me as i continue the path i'm taking right now.
